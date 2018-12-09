@@ -17,4 +17,4 @@ J'ai vraiment passé tout le week-end à lire et à pratiquer.
 Mais comme je les dis plus haut, je veux vraiment comprendre ce que je fais et pourquoi je le fais.
 Je vous avouerez aussi que je n'ose pas trop demander aux autres par peur de les déranger tout le temps.
 Je vous souhaite une bonne journée.
-DRUELLE MEHDI
+
